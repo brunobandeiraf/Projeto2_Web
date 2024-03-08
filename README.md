@@ -2,7 +2,10 @@
 
 Escrevendo alguma coisa sobre o projeto aqui que irei desenvolver na aula de hoje
 
-<h2> Título </h2>
-faltou alguma coisa
+Caros amigos, a expansão dos mercados mundiais assume importantes posições no estabelecimento do impacto na agilidade decisória. Por outro lado, o consenso sobre a necessidade de qualificação pode nos levar a considerar a reestruturação dos paradigmas corporativos. O incentivo ao avanço tecnológico, assim como a revolução dos costumes talvez venha a ressaltar a relatividade do sistema de participação geral. Do mesmo modo, a crescente influência da mídia auxilia a preparação e a composição do investimento em reciclagem técnica.
 
-## Outro título
+A prática cotidiana prova que o comprometimento entre as equipes faz parte de um processo de gerenciamento dos conhecimentos estratégicos para atingir a excelência. As experiências acumuladas demonstram que o julgamento imparcial das eventualidades exige a precisão e a definição das posturas dos órgãos dirigentes com relação às suas atribuições. A certificação de metodologias que nos auxiliam a lidar com o aumento do diálogo entre os diferentes setores produtivos facilita a criação das condições financeiras e administrativas exigidas.
+
+A nível organizacional, a estrutura atual da organização possibilita uma melhor visão global do retorno esperado a longo prazo. Gostaria de enfatizar que a execução dos pontos do programa oferece uma interessante oportunidade para verificação do orçamento setorial. Assim mesmo, o início da atividade geral de formação de atitudes garante a contribuição de um grupo importante na determinação do sistema de formação de quadros que corresponde às necessidades.
+
+No entanto, não podemos esquecer que a determinação clara de objetivos cumpre um papel essencial na formulação dos modos de operação convencionais. Todas estas questões, devidamente ponderadas, levantam dúvidas sobre se a consolidação das estruturas agrega valor ao estabelecimento das regras de conduta normativas. Não obstante, o fenômeno da Internet ainda não demonstrou convincentemente que vai participar na mudança das direções preferenciais no sentido do progresso. O que temos que ter sempre em mente é que a adoção de políticas descentralizadoras acarreta um processo de reformulação e modernização do processo de comunicação como um todo.
